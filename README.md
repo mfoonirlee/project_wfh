@@ -11,4 +11,4 @@
 
 ## company information
 
-[Search for Company]https://www.levels.fyi/companies
+[Search for Company](https://www.levels.fyi/companies)
