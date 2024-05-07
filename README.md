@@ -4,4 +4,4 @@
 
 [Senior Frontend Engineer, Safety Tools](https://wellfound.com/jobs/2996704-senior-frontend-engineer-safety-tools)
 
-[Frontend Developer - Wallet]https://sg.indeed.com/jobs?q=frontend&l=Remote&from=searchOnDesktopSerp&vjk=df4fb1c3f40863c8
+[Frontend Developer - Wallet](https://sg.indeed.com/jobs?q=frontend&l=Remote&from=searchOnDesktopSerp&vjk=df4fb1c3f40863c8)
