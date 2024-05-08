@@ -8,6 +8,8 @@
 
 [Senior Front End Product Software Engineer](https://www.levels.fyi/jobs?searchText=front+end&workArrangements=remote&jobId=116750454097879750)
 
+[JustJoin.it](https://justjoin.it/all-locations/javascript/remote_yes?index=0)
+
 
 ## company information
 
