@@ -11,6 +11,6 @@
 [JustJoin.it](https://justjoin.it/all-locations/javascript/remote_yes?index=0)
 
 
-## company information
+## Company information
 
 [Search for Company](https://www.levels.fyi/companies)
