@@ -10,6 +10,8 @@
 
 [JustJoin.it](https://justjoin.it/all-locations/javascript/remote_yes?index=0)
 
+[Binance](https://www.linkedin.com/jobs/view/3818062362/)
+
 
 ## Company information
 
