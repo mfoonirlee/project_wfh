@@ -12,6 +12,8 @@
 
 [Binance](https://www.linkedin.com/jobs/view/3818062362/)
 
+[remote.co](https://remote.co/remote-jobs/)
+
 
 ## Company information
 
