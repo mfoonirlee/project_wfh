@@ -13,7 +13,7 @@
 [remote.co](https://remote.co/remote-jobs/)
 
 
-## Company information
+## Company for WFH
 
 [Binance](https://www.linkedin.com/jobs/view/3818062362/)
 
