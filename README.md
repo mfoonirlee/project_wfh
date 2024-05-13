@@ -10,9 +10,14 @@
 
 [JustJoin.it](https://justjoin.it/all-locations/javascript/remote_yes?index=0)
 
+[remote.co](https://remote.co/remote-jobs/)
+
+
+## Company information
+
 [Binance](https://www.linkedin.com/jobs/view/3818062362/)
 
-[remote.co](https://remote.co/remote-jobs/)
+[tubi](https://boards.greenhouse.io/tubitvchina/jobs/5927789)
 
 
 ## Company information
