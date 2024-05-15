@@ -12,7 +12,6 @@
 
 [remote.co](https://remote.co/remote-jobs/)
 
-
 ## Company for WFH
 
 [Binance](https://www.linkedin.com/jobs/view/3818062362/)
