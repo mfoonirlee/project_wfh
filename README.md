@@ -12,6 +12,12 @@
 
 [remote.co](https://remote.co/remote-jobs/)
 
+[pangian](https://pangian.com/job-travel-remote/)
+
+[skip the drive](https://www.skipthedrive.com/?s=remote)
+
+[wellfound](https://wellfound.com/)
+
 ## Company for WFH
 
 [Binance](https://www.linkedin.com/jobs/view/3818062362/)
