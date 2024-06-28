@@ -26,6 +26,8 @@
 
 [livepersion](https://www.levels.fyi/jobs/company/liveperson?jobId=113789666315903686)
 
+[solana](https://jobs.solana.com/jobs)
+
 
 ## Company information
 
