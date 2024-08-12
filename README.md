@@ -18,6 +18,8 @@
 
 [remoteok](https://remoteok.com/)
 
+[indeed](https://www.indeed.com/cmp/Coinbase-1)
+
 ## Company for WFH
 
 [Binance](https://www.linkedin.com/jobs/view/3818062362/)
