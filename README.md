@@ -20,6 +20,10 @@
 
 [indeed](https://www.indeed.com/cmp/Coinbase-1)
 
+[japan-dev](https://japan-dev.com/)
+
+[tokyo-dev](https://www.tokyodev.com/)
+
 ## Company for WFH
 
 [Binance](https://www.linkedin.com/jobs/view/3818062362/)
