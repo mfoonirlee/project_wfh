@@ -34,7 +34,9 @@
 
 [solana](https://jobs.solana.com/jobs)
 
+[web3.career](https://web3.career/)
 
 ## Company information
 
 [Search for Company](https://www.levels.fyi/companies)
+
